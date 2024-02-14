@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ThisWomanWorks-1
-- 👀 I’m interested in instructional design, learning tools such as Articulate, Captivate,learning management strategy, AI, biotech and more. I like keeping my ears and eyes open to what's needed and what's new. The competitive edge a company can gain by upskilling its employees and knowledge-sharing among employees, **that** excites me!
+- 👀 I’m interested in AI edtech, biotech and more. I like keeping my ears and eyes open to what's needed and what's new. The competitive edge a company can gain by upskilling its employees and knowledge-sharing among employees, **that** excites me!
 - 🌱 I’m currently working on additional markdown skills, graphic design skills and other learning platform skills.
 - 🔍 I enjoy research and "finding things." My very first job was as a library page. That experience provided public engagement skills, systems experience, organizatonal skills, patience and more. 
 - 💞️ I welcome connections related to instructional design, content strategy, and graphic design techniques for effective learning including use of Storyline, H5P, and other assessment tools and more. 
